@@ -1,2 +1,3 @@
-# Vip
-Wykup Vipa !
+# Vip na Zawsze !
+Kup Vipa Szybko !
+
